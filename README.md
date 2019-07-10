@@ -1,1 +1,5 @@
-# System27French
+# 0.Section:L'histoire qui se raconte
+
+L'odeur de mûres et vanille...Cannelle et une brise chaude...Où suis-je? Je suis quoi?Je suis tout, donc rien...
+Est-ce que j'existe? Moi et lui...Moi,je suis absent, lui est present.Seul lui est présent. İl n'y a rien d'autre que lui. Alors,à qui appartient ces sons?
+Des éclats de lumière bleue accompagné par la voix d'un homme sons vient de intermittence ''Après 27 ans...'',''On se verra''...
