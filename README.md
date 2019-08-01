@@ -9,3 +9,4 @@ Il a subitement subi une crise semblable à une crise d'épilepsie, tombant à t
 Il a eu quelques expériences lors d'une crise. Les limites des objets autour de lui s'estompèrent. Les objets visibles sont devenus des formes fractales. Toute signification a disparu.
 ll avait précédemment pensé que l'univers était un tout et qu'il était une petite particule du tout, mais ce qu’il avait pensé, il le sentait de tout son corps.
 Il a juré: "Il y a une réalité au-dessus de la réalité dans laquelle nous vivons. Je gagnerai du sens que si je m'y consacre."
+Selon ses propres mots, "dans cette simulation appelée le monde" , il pensait que rien de ce qui lui arrivait n’avait de véritable sens pour le moment.
